@@ -25,8 +25,8 @@ J'en ai profité pour élargir ma palette musicale, qui se décline actuellement
 - Un répertoire instrumental à la basse fretless 6 cordes, avec accompagnement vintage des années 70
 - Un répertoire Acid-jazz Ambient à la Basse 7 cordes, au cours duquel je construis mes arrangements en temps réeel sur un looper multipistes
 
-Rendez-vous sur Soundcloud pour écouter  les démos audio:
-https://soundcloud.com/beaufx/albums
+Rendez-vous sur [Soundcloud](https://soundcloud.com/beaufx/albums) pour écouter  les démos audio:
+
 
 Je peux éventuellement me produire en public..
 
